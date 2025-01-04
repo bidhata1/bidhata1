@@ -3,5 +3,5 @@
 #### 👩‍🎓 About Me
 
 - 👩‍💻 Computer Engineering Student
-- 📫 you can also find me on https://www.linkedin.com/in/bidhata-pandey-74984b226/
+- 📫 you can also find me on https://www.linkedin.com/in/bidhata-pandey/
 
